@@ -13,4 +13,4 @@
 ![Image](https://github.com/user-attachments/assets/2b9f0730-0e7a-4b5f-9cf1-c3525fa613b3)
 
 fandoms: 
-mlp, rpdr (only us seasons and mayb some ph), pjsk, nekopara, tbhk, himouto umaru chan, chiikawa, ddlc, south park, fnaf, mbti
+mlp, rpdr (only us seasons and mayb some ph), pjsk, crk, nekopara, tbhk, himouto umaru chan, chiikawa, ddlc, south park, fnaf, mbti
