@@ -14,3 +14,10 @@
 
 fandoms: 
 mlp, rpdr (only us seasons and mayb some ph), pjsk, crk, nekopara, tbhk, himouto umaru chan, chiikawa, ddlc, south park, fnaf, mbti
+
+my sillies:
+
+![Image](https://github.com/user-attachments/assets/2dac598b-291c-4401-a29a-24cfd4966a6c)
+![Image](https://github.com/user-attachments/assets/de0d282b-d241-4e95-a779-4be4fa023bb3)
+![Image](https://github.com/user-attachments/assets/6d3b3a45-651a-40fa-b36c-a78f692f9353)
+![Image](https://github.com/user-attachments/assets/1694f77b-3659-4471-aaa5-ae328c001436)
