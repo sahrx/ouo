@@ -11,3 +11,6 @@
 ![Image](https://github.com/user-attachments/assets/75e5c004-03fd-44bc-be41-78e4a000d128)
 ![Image](https://github.com/user-attachments/assets/54ac0d75-24b4-4dc2-8963-8807133674e4)
 ![Image](https://github.com/user-attachments/assets/2b9f0730-0e7a-4b5f-9cf1-c3525fa613b3)
+
+fandoms: 
+mlp, rpdr (only us seasons and mayb some ph), pjsk, nekopara, tbhk, himouto umaru chan, chiikawa, ddlc, south park, fnaf, mbti
